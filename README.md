@@ -1,1 +1,1 @@
-# jennyswhitelist.github.io
+# jennyjosmith.github.io
